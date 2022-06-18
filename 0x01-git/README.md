@@ -1,0 +1,1 @@
+I am really hoping I get good at this software engineering, it feels so great doing what i have managed to do so far and it is just barely scratching the surface, it is scary but i am enjoying the strain it is giving my mind
